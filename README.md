@@ -4,6 +4,6 @@
 
 @1GYOU1 🐰 yum-yum
 
-@hyennii 
+@hyennii 🐔 ohm-nyom-nyom
 
 @Gahaaa 🐸 chop-chop
