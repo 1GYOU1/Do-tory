@@ -2,8 +2,4 @@
 
 ## Git-collab ❤️‍🔥
 
-@1GYOU1 🐰 yum-yum
-
-@hyennii 
-
-@Gahaaa
+@Gahaaa 🐸 chop-chop
